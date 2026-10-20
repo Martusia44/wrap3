@@ -3,3 +3,6 @@
 
 ## O mnie
 nie ma tak
+
+## Cele na studiach
+zdać
